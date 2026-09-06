@@ -4,7 +4,7 @@
 
 <p align="center">
   <b>He / Him</b><br>
-  <b>?) YO, Myct fan</b><br>
+  <b>?) YO, Mcyt fan</b><br>
   ﹋
 </p>
 
