@@ -1,4 +1,4 @@
-![IStoleTheBanner](20260905_22045.png)
+
 
 ## Atabook in process!!
 
